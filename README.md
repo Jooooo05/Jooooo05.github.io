@@ -1,2 +1,2 @@
 # Jooooo05.github.io
-Mencoba Hosting
+Coba buat apa ajalah
